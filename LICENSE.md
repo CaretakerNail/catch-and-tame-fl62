@@ -1,4 +1,4 @@
-
+Experience catch and tame like never before with top Script for catch and tame, the #1 Script. Includes fly and anti-ban for unbeatable performance.
 
 
 
